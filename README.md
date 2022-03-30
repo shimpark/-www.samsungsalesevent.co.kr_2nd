@@ -1,1 +1,1 @@
-# -www.samsungsalesevent.co.kr_2nd
+# www.samsungsalesevent.co.kr
